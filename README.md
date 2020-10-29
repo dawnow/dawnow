@@ -1,16 +1,11 @@
-### Hi there 👋
+### Hi! Dawn is here 👋
 
-<!--
-**dawnow/dawnow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🎓 I’m Grauated from JMU, Chinese Language and Literature
+- 🔭 I’m a Chinese teacher working on a education and training company
+- 🌱 I’m currently learning Chinese culture, graphic design and so on
+- 🖋 Writer at [sspai](https://sspai.com/u/dawner/posts)
+- ✍️ [Blogger](https://dawner.top/)
+- 💛 JIKE User: @DawnzzZ
+- 🎲 [My Notion Public Workspace](https://www.notion.so/imdawn/Dawn-s-Warehouse-f16d22567aa04496b4e8aa2a2df9ff58)
+- 😄 Want to be a vlogger
+- ⚡ Fun fact: GO ask Google Assistant
