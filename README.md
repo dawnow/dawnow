@@ -1,7 +1,7 @@
 ### Hi! Dawn is here 👋
 
-- 🎓 I’m Grauated from JMU, Chinese Language and Literature
-- 🔭 I’m a Chinese teacher working on a education and training company
+- 🎓 I’m graduated from JMU, Chinese Language and Literature
+- 🔭 I’m a Chinese teacher working on a education and training company currently
 - 🌱 I’m currently learning Chinese culture, graphic design and so on
 - 🖋 Writer at [sspai](https://sspai.com/u/dawner/posts)
 - ✍️ [Blogger](https://dawner.top/)
