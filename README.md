@@ -1,8 +1,8 @@
 ### Hi! Dawn is here 👋
 
 - 🎓 I’m graduated from JMU, Chinese Language and Literature
-- 🔭 I’m a Chinese teacher working on a education and training company currently
-- 🌱 I’m currently learning Chinese culture, graphic design and so on
+- 🔭 I’m an editor working on a publishing company currently
+- 🌱 I’m learning Chinese culture, graphic design recently
 - 🖋 Writer at [sspai](https://sspai.com/u/dawner/posts)
 - ✍️ [Blogger](https://dawner.top/)
 - 💛 即刻: @Dawner
